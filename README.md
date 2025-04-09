@@ -1,14 +1,17 @@
+
+
+
 # about me !! :3
 
 hie im austin! i like making frens on pt so pls int with me! (C+H is always welcome even if it isnt in my name!)
 
 (my friend list is usually always full ToT)
 
- ![meow]([https://tenor.com/view/needy-streamer-overload-nso-girl-gif-6274177325672485650](https://media1.tenor.com/m/VxJbCSKE0xIAAAAC/needy-streamer.gif))
-
-
+ ![](https://media1.tenor.com/m/eTzsZYFB0yUAAAAC/nso-needy-streamer-overload.gif)
+ 
 ## INT !!
 nso/ngo , batim , twenty one pilots , vocaloid , cookie run , resident evil , sonic , spongebob , object shows , slime rancher 
+
 
 ## THIN ICE . (friends excluded)
 homestuck , hazbin hotel / helluva boss , 
@@ -41,3 +44,8 @@ im an **unsure sharing yumeshipper**, i yume with shadow and rouge from sth \(^o
 IF U EVER WANNA PLAY MC PLEASEE ASK ME I LOVE PLAYING MC WITH PEOPLE !!!!! :DD  
 
 im a spongebob kinnie ! :3 
+
+
+thanks 4 reading ! 🔢
+
+![](https://blinkies.cafe/b/display/0242-loveletter.gif) ![](https://blinkies.cafe/b/display/0206-nyancat.gif) ![](https://blinkies.cafe/b/display/0178-mikuwink2.gif) ![](https://blinkies.cafe/b/display/0183-pastelpinkwings.gif) ![](https://blinkies.cafe/b/display/0168-catgender.gif)
