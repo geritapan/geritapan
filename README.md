@@ -7,17 +7,19 @@ hie im austin! i like making frens on pt so pls int with me! (C+H is always welc
 
 (my friend list is usually always full ToT)
 
- ![](https://media1.tenor.com/m/eTzsZYFB0yUAAAAC/nso-needy-streamer-overload.gif)
+ ![](https://media1.tenor.com/m/eTzsZYFB0yUAAAAC/nso-needy-streamer-overload.gif)![](https://media1.tenor.com/m/eTzsZYFB0yUAAAAC/nso-needy-streamer-overload.gif)
  
 ## INT !!
 nso/ngo , batim , twenty one pilots , vocaloid , cookie run , resident evil , sonic , spongebob , object shows , slime rancher 
 
+![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)
 
 ## THIN ICE . (friends excluded)
 homestuck , hazbin hotel / helluva boss , 
 
 *read rentry for dni !!*
 
+![](https://media1.tenor.com/m/1-QB6H3A2roAAAAd/weezer-needy-streamer-overload.gif)![](https://media1.tenor.com/m/1-QB6H3A2roAAAAd/weezer-needy-streamer-overload.gif)
 ## BYI
 i have **abandoment issues**, so i tend to be clingy 
 
@@ -38,6 +40,7 @@ i suffer from **unknown mental health issues**
 
 im an **unsure sharing yumeshipper**, i yume with shadow and rouge from sth \(^o^)/
 
+![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)
 
 
 ## RANDOM STUFF :3 !
@@ -48,4 +51,12 @@ im a spongebob kinnie ! :3
 
 thanks 4 reading ! 🔢
 
-![](https://blinkies.cafe/b/display/0242-loveletter.gif) ![](https://blinkies.cafe/b/display/0206-nyancat.gif) ![](https://blinkies.cafe/b/display/0178-mikuwink2.gif) ![](https://blinkies.cafe/b/display/0183-pastelpinkwings.gif) ![](https://blinkies.cafe/b/display/0168-catgender.gif)
+![](https://blinkies.cafe/b/display/0242-loveletter.gif)
+
+![](https://blinkies.cafe/b/display/0206-nyancat.gif)
+
+![](https://blinkies.cafe/b/display/0178-mikuwink2.gif)
+
+![](https://blinkies.cafe/b/display/0183-pastelpinkwings.gif)
+
+![](https://blinkies.cafe/b/display/0168-catgender.gif)
