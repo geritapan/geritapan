@@ -36,7 +36,7 @@ i **ageregress** sometimes, ill usually put 'little' or 'agere' in my name if i 
 
 i dont take **rejection** well, i may go quiet after being told no 
 
-i suffer from **unknown mental health issues** 
+i suffer from **mental health issues** 
 
 im an **unsure sharing yumeshipper**, i yume with shadow and rouge from sth \(^o^)/
 
