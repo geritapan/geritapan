@@ -17,7 +17,7 @@ nso/ngo , batim , twenty one pilots , vocaloid , cookie run , resident evil , so
 ## THIN ICE . (friends excluded)
 homestuck , hazbin hotel / helluva boss , 
 
-*read rentry for dni !!*
+*more info on rentry !!*
 
 ![](https://media1.tenor.com/m/1-QB6H3A2roAAAAd/weezer-needy-streamer-overload.gif)
 ## BYI
