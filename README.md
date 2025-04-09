@@ -4,9 +4,9 @@ hie im austin! i like making frens on pt so pls int with me! (C+H is always welc
 
 (my friend list is usually always full ToT)
 
- ![kangel](https://tenor.com/view/needy-streamer-overload-nso-girl-gif-6274177325672485650)
+ ![meow](https://tenor.com/view/needy-streamer-overload-nso-girl-gif-6274177325672485650)
 
-https://tenor.com/view/nso-needy-streamer-overload-needy-girl-overdose-ame-chan-kangel-gif-8736117297896346405
+
 ## INT !!
 nso/ngo , batim , twenty one pilots , vocaloid , cookie run , resident evil , sonic , spongebob , object shows , slime rancher 
 
