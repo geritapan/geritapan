@@ -4,7 +4,7 @@ hie im austin! i like making frens on pt so pls int with me! (C+H is always welc
 
 (my friend list is usually always full ToT)
 
- ![meow](https://tenor.com/view/needy-streamer-overload-nso-girl-gif-6274177325672485650)
+ ![meow]([https://tenor.com/view/needy-streamer-overload-nso-girl-gif-6274177325672485650](https://media1.tenor.com/m/VxJbCSKE0xIAAAAC/needy-streamer.gif))
 
 
 ## INT !!
