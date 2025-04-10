@@ -7,6 +7,8 @@ hie im austin! i like making frens on pt so pls int with me! (C+H is always welc
 
 (my friend list is usually always full ToT)
 
+note: even if the fandoms im in have a bad rep , im not a mean guy , i like making friends n i wont bite unless u bite first ^o^
+
 🟢 - ALL INT PLLSS
 
 🌙 - afk/offtab
@@ -19,12 +21,11 @@ hie im austin! i like making frens on pt so pls int with me! (C+H is always welc
 
 **bold** = *hyperfixations*
 
-**nso/ngo** , **batim** , **twenty one pilots** , **vocaloid** , cookie run , **resident evil** , **sonic** , **spongebob** , object shows , slime rancher , fnaf , fnf , **pusheen** , stray , taiko no tatsujin , undertale/deltarune , tyler the creator 
-
+**nso/ngo** , **batim** , **twenty one pilots** , **vocaloid** , cookie run , **resident evil** , **sonic** , **spongebob** , object shows , slime rancher , fnaf , fnf , **pusheen** , stray , taiko no tatsujin , undertale/deltarune , tyler the creator , dandys world , regretevator
 ![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)
 
 ## THIN ICE . (friends excluded)
-homestuck , hazbin hotel / helluva boss , 
+homestuck , hazbin hotel / helluva boss , roblox fandoms , fnf 
 
 *more info on rentry !!*
 
