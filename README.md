@@ -2,6 +2,8 @@
 
 
 # about me !! :3
+![](https://blinkies.cafe/b/display/0183-pastelpinkwings.gif)![](https://blinkies.cafe/b/display/0183-pastelpinkwings.gif)![](https://blinkies.cafe/b/display/0183-pastelpinkwings.gif)
+
 
 hie im austin! i like making frens on pt so pls int with me! (C+H is always welcome even if it isnt in my name!)
 
@@ -68,7 +70,5 @@ im a spongebob kinnie ! :3
 ![](https://blinkies.cafe/b/display/0206-nyancat.gif)
 
 ![](https://blinkies.cafe/b/display/0178-mikuwink2.gif)
-
-![](https://blinkies.cafe/b/display/0183-pastelpinkwings.gif)
 
 ![](https://blinkies.cafe/b/display/0168-catgender.gif)
