@@ -19,7 +19,7 @@ note: even if the fandoms im in have a bad rep , im not a mean guy , i like maki
 
 ⛔ - busy/dni(u_) (will specify)
 
- ![](https://media1.tenor.com/m/eTzsZYFB0yUAAAAC/nso-needy-streamer-overload.gif)
+ ![]([https://media1.tenor.com/m/eTzsZYFB0yUAAAAC/nso-needy-streamer-overload.gif])
  
 ## INT / FANDOMS IM IN !!
 
@@ -33,7 +33,7 @@ homestuck , hazbin hotel / helluva boss , roblox fandoms , fnf
 
 *more info on rentry !!*
 
-![](https://media1.tenor.com/m/1-QB6H3A2roAAAAd/weezer-needy-streamer-overload.gif)
+![](https://whysoserious.jp/needy/resources/img/info_movie_fc88ef0b94d14e7f75cc9d0c416b582a.gif)
 ## BYI
 i have **abandoment issues**, so i tend to be clingy 
 
