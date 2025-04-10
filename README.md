@@ -4,6 +4,8 @@
 # about me !! :3
 ![](https://blinkies.cafe/b/display/0183-pastelpinkwings.gif)![](https://blinkies.cafe/b/display/0183-pastelpinkwings.gif)![](https://blinkies.cafe/b/display/0183-pastelpinkwings.gif)![](https://blinkies.cafe/b/display/0183-pastelpinkwings.gif)![](https://blinkies.cafe/b/display/0183-pastelpinkwings.gif)
 
+![](https://komarev.com/ghpvc/?username=kawaiiangeloverdose&color=ff7c92&style=for-the-badge&label=STREAM+VIEWERS)
+
 
 hie im austin! i like making frens on pt so pls int with me! (C+H is always welcome even if it isnt in my name!)
 
