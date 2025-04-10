@@ -7,10 +7,19 @@ hie im austin! i like making frens on pt so pls int with me! (C+H is always welc
 
 (my friend list is usually always full ToT)
 
+🟢 - ALL INT PLLSS
+
+🌙 - afk/offtab
+
+⛔ - busy/dni(u_) (will specify)
+
  ![](https://media1.tenor.com/m/eTzsZYFB0yUAAAAC/nso-needy-streamer-overload.gif)
  
-## INT !!
-nso/ngo , batim , twenty one pilots , vocaloid , cookie run , resident evil , sonic , spongebob , object shows , slime rancher 
+## INT / FANDOMS IM IN !!
+
+**bold** = *hyperfixations*
+
+**nso/ngo** , **batim** , **twenty one pilots** , **vocaloid** , cookie run , **resident evil** , **sonic** , **spongebob** , object shows , slime rancher , fnaf , fnf , **pusheen** , stray , taiko no tatsujin , undertale/deltarune , tyler the creator 
 
 ![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)
 
