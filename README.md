@@ -50,7 +50,7 @@ i suffer from **mental health issues**
 
 im an **unsure sharing yumeshipper**, i yume with shadow and rouge from sth \(^o^)/
 
-i tend to say **random things** when chat gets too quiet, i feel **discluded**/**upset** or im **age regressing** (ect - 'nyaa' , 'meow' , 'uwuueeeuu')
+i tend to say **random things** when chat gets too quiet, i feel **discluded**/**upset** or im **age regressing** (ex - 'nyaa' , 'meow' , 'uwuueeeuu')
 
 ![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)
 
