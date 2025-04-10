@@ -28,7 +28,7 @@ i talk in **3rd person** sometimes
 i sometimes say **RECLAIMABLE** slurs + make dark/sexual jokes with my friends , if u need me to not bring up a topic just let me know so
 i dont mess up ^_^
 
-**please dont disclude me**, it makes me feel bad 
+**please dont disclude me**, it makes me feel bad
 
 i have **anxiety**, so i act odd around new people til i get to know you 
 
@@ -40,6 +40,8 @@ i suffer from **mental health issues**
 
 im an **unsure sharing yumeshipper**, i yume with shadow and rouge from sth \(^o^)/
 
+i tend to say **random things** when chat gets too quiet, i feel **discluded** or im **age regressing** (ect - 'nyaa' , 'meow' , 'uwuueeeuu')
+
 ![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)
 
 
@@ -49,7 +51,7 @@ IF U EVER WANNA PLAY MC PLEASEE ASK ME I LOVE PLAYING MC WITH PEOPLE !!!!! :DD
 im a spongebob kinnie ! :3 
 
 
-thanks 4 reading ! 🔢
+## thanks 4 reading ! 
 
 ![](https://blinkies.cafe/b/display/0242-loveletter.gif)
 
