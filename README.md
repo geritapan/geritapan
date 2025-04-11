@@ -26,6 +26,7 @@ note: even if the fandoms im in have a bad rep , im not a mean guy , i like maki
 **bold** = *hyperfixations*
 
 **nso/ngo** , **batim** , **twenty one pilots** , **vocaloid** , cookie run , **resident evil** , **sonic** , **spongebob** , object shows , slime rancher , fnaf , fnf , **pusheen** , stray , taiko no tatsujin , undertale/deltarune , tyler the creator , dandys world , regretevator
+
 ![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)
 
 ## THIN ICE . (friends excluded)
@@ -59,13 +60,19 @@ i tend to say **random things** when chat gets too quiet, i feel **discluded**/*
 ![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)
 
 
-## RANDOM STUFF :3 !
-IF U EVER WANNA PLAY MC PLEASEE ASK ME I LOVE PLAYING MC WITH PEOPLE !!!!! :DD  
+## KINS/COPINGLINKS !!
 
-im a spongebob kinnie ! :3 
+**bold** = current hyperfixes
+
+**spongebob squarepants**
+
+**ame-chan (nso)** 
+
+vampire miku 
 
 
-## thanks 4 reading ! 
+
+# thanks 4 reading ! 
 
 ![](https://blinkies.cafe/b/display/0242-loveletter.gif)
 
