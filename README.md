@@ -25,7 +25,7 @@ note: even if the fandoms im in have a bad rep , im not a mean guy , i like maki
 
 **bold** = *hyperfixations*
 
-**nso/ngo** , **batim** , **twenty one pilots** , **vocaloid** , cookie run , **resident evil** , **sonic** , **spongebob** , object shows , slime rancher , fnaf , fnf , **pusheen** , stray , taiko no tatsujin , undertale/deltarune , tyler the creator , dandys world , regretevator
+**nso/ngo** , **batim** , **twenty one pilots** , **vocaloid** , cookie run , **resident evil** , **sonic** , **spongebob** , object shows , slime rancher , fnaf , fnf , **pusheen** , stray , taiko no tatsujin , undertale/deltarune , tyler the creator , dandys world , regretevator , **watamote** , **mha**
 
 ![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)
 
@@ -67,6 +67,10 @@ i tend to say **random things** when chat gets too quiet, i feel **discluded**/*
 **spongebob squarepants**
 
 **ame-chan (nso)** 
+
+**izuku midoriya (mha)**
+
+**tomoko (watamote)**
 
 vampire miku 
 
