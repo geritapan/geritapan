@@ -25,7 +25,11 @@ note: even if the fandoms im in have a bad rep , im not a mean guy , i like maki
 
 **bold** = *hyperfixations*
 
-**nso/ngo** , **batim** , **twenty one pilots** , **vocaloid** , cookie run , **resident evil** , **sonic** , **spongebob** , object shows , slime rancher , fnaf , fnf , **pusheen** , stray , taiko no tatsujin , undertale/deltarune , tyler the creator , dandys world , regretevator , **watamote** , **mha** , **madoka magica**
+nso/ngo , **batim** , **twenty one pilots** , **vocaloid** , cookie run , **resident evil** , **sonic** , **spongebob** , object shows , slime rancher , fnaf , fnf , **pusheen** , stray , taiko no tatsujin , undertale/deltarune , tyler the creator , dandys world , regretevator 
+
+# animes i watch !! 
+
+**watamote** , **mha** , **madoka magica** , lucky star , when they cry , demon slayer (WATCHLIST: assasination classroom, evangelion, fullmetal alchemist)
 
 ![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)
 
@@ -60,9 +64,9 @@ i tend to say **random things** when chat gets too quiet, i feel **discluded**/*
 ![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)
 
 
-## KINS/COPINGLINKS !!
+## KINS (me) !!
 
-**bold** = current hyperfixes
+**bold** = chars i relate to !!
 
 **spongebob squarepants**
 
@@ -70,10 +74,13 @@ i tend to say **random things** when chat gets too quiet, i feel **discluded**/*
 
 **izuku midoriya (mha)**
 
+himiko toga (mha)
+
 **tomoko (watamote)**
 
-vampire miku 
+**konata izumi (lucky star)**
 
+madoka kaname (madoka magica)
 
 
 # thanks 4 reading ! 
