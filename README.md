@@ -19,7 +19,7 @@ note: even if the fandoms im in have a bad rep , im not a mean guy , i like maki
 
 ⛔ - busy/dni(u_) (will specify)
 
- ![](https://www.tumblr.com/gifs-and-hetalia-blog/162123549670)
+ ![](https://giphy.com/gifs/cat-hetalia-gif-qvcNZngRzaLmM)
  
 ## INT / FANDOMS IM IN !!*\
 **bold** = *hyperfixations*
