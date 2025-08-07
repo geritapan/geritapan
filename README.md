@@ -26,9 +26,6 @@ note: even if the fandoms im in have a bad rep , im not a mean guy , i like maki
 
 nso/ngo , **batim** , **twenty one pilots** , **vocaloid** , cookie run , **resident evil** , **sonic** , **spongebob** , object shows , slime rancher , fnaf , fnf , **pusheen** , stray , taiko no tatsujin , undertale/deltarune , tyler the creator , dandys world , regretevator \, **hetalia**
 8
-# animes i watch !! 
-
-**watamote** , **mha** , **madoka magica** , lucky star , when they cry , demon slayer (WATCHLIST: assasination classroom, evangelion, fullmetal alchemist)
 
 ![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)
 
@@ -39,9 +36,6 @@ homestuck , hazbin hotel / helluva boss , roblox fandoms , fnf
 
 ![](https://whysoserious.jp/needy/resources/img/info_movie_fc88ef0b94d14e7f75cc9d0c416b582a.gif)
 ## BYI
-i have **abandoment issues**, so i tend to be clingy 
-
-i talk in **3rd person** sometimes
 
 i sometimes say **RECLAIMABLE** slurs + make dark/sexual jokes with my friends , if u need me to not bring up a topic just let me know so
 i dont mess up ^_^
@@ -57,8 +51,6 @@ i dont take **rejection** well, i may go quiet after being told no
 i suffer from **mental health issues** 
 
 im an **unsure sharing yumeshipper**, i yume with shadow and rouge from sth \(^o^)/
-
-i tend to say **random things** when chat gets too quiet, i feel **discluded**/**upset**, im **age regressing**, or just bored, really (ex - 'nyaa' , 'meow' , 'uwuueeeuu')
 
 ![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)
 
