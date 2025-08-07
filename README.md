@@ -6,6 +6,8 @@
 
 ![](https://komarev.com/ghpvc/?username=kawaiiangeloverdose&color=ff7c92&style=for-the-badge&label=STREAM+VIEWERS)
 
+![](https://media.tenor.com/fzKPJg00gvoAAAAi/hetalia-italy.gif)
+
 
 hie im austin! i like making frens on pt so pls int with me! (C+H is always welcome even if it isnt in my name!)
 
