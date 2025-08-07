@@ -21,12 +21,11 @@ note: even if the fandoms im in have a bad rep , im not a mean guy , i like maki
 
  ![]([https://media1.tenor.com/m/eTzsZYFB0yUAAAAC/nso-needy-streamer-overload.gif])
  
-## INT / FANDOMS IM IN !!
-
+## INT / FANDOMS IM IN !!*\
 **bold** = *hyperfixations*
 
-nso/ngo , **batim** , **twenty one pilots** , **vocaloid** , cookie run , **resident evil** , **sonic** , **spongebob** , object shows , slime rancher , fnaf , fnf , **pusheen** , stray , taiko no tatsujin , undertale/deltarune , tyler the creator , dandys world , regretevator 
-
+nso/ngo , **batim** , **twenty one pilots** , **vocaloid** , cookie run , **resident evil** , **sonic** , **spongebob** , object shows , slime rancher , fnaf , fnf , **pusheen** , stray , taiko no tatsujin , undertale/deltarune , tyler the creator , dandys world , regretevator \, **hetalia**
+8
 # animes i watch !! 
 
 **watamote** , **mha** , **madoka magica** , lucky star , when they cry , demon slayer (WATCHLIST: assasination classroom, evangelion, fullmetal alchemist)
