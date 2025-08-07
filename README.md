@@ -19,15 +19,13 @@ note: even if the fandoms im in have a bad rep , im not a mean guy , i like maki
 
 ⛔ - busy/dni(u_) (will specify)
 
- ![](https://giphy.com/gifs/cat-hetalia-gif-qvcNZngRzaLmM)
+ ![](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExODU3bzA0c2U2Nmh3cWpmZGJsNzdmb2Z5eXo4YTd4Ymg0eGQzYWU1MSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/qvcNZngRzaLmM/giphy.gif)
  
 ## INT / FANDOMS IM IN !!*\
 **bold** = *hyperfixations*
 
 nso/ngo , **batim** , **twenty one pilots** , **vocaloid** , cookie run , **resident evil** , **sonic** , **spongebob** , object shows , slime rancher , fnaf , fnf , **pusheen** , stray , taiko no tatsujin , undertale/deltarune , tyler the creator , dandys world , regretevator \, **hetalia**
-8
 
-![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)![](https://media.tenor.com/bcBK5whk428AAAAM/needy-streamer-overload.gif)
 
 ## THIN ICE . (friends excluded)
 homestuck , hazbin hotel / helluva boss , roblox fandoms , fnf 
