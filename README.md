@@ -24,7 +24,10 @@ note: even if the fandoms im in have a bad rep , im not a mean guy , i like maki
 ## INT / FANDOMS IM IN !!*\
 **bold** = *hyperfixations*
 
-nso/ngo , **batim** , **twenty one pilots** , **vocaloid** , cookie run , **resident evil** , **sonic** , **spongebob** , object shows , slime rancher , fnaf , fnf , **pusheen** , stray , taiko no tatsujin , undertale/deltarune , tyler the creator , dandys world , regretevator \, **hetalia**
+nso/ngo , **batim** , **twenty one pilots** , **vocaloid** , cookie run , **resident evil** , **sonic** , **spongebob** , object shows , slime rancher , fnaf , fnf , **pusheen** , stray , taiko no tatsujin , undertale/deltarune , tyler the creator , dandys world , regretevator , **hetalia**
+
+
+![](https://64.media.tumblr.com/71d22281ea66b57ddd238c9008b8d705/tumblr_orybl7qRgy1ujzkvvo1_540.gif)
 
 
 ## THIN ICE . (friends excluded)
