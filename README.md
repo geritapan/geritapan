@@ -65,21 +65,21 @@ i tend to say **random things** when chat gets too quiet, i feel **discluded**/*
 
 ## KINS (me) !!
 
-**bold** = chars i relate to !!
+*italic* = synpaths 
+**bold** = kinshifts
+***both*** = mix of syn and shift
 
-**spongebob squarepants**
+*spongebob squarepants*
 
-**ame-chan (nso)** 
+***ame-chan (nso)***
 
-**izuku midoriya (mha)**
+*tomoko (watamote)*
 
-himiko toga (mha)
+***konata izumi (lucky star)***
 
-**tomoko (watamote)**
+*madoka kaname (madoka magica)*
 
-**konata izumi (lucky star)**
-
-madoka kaname (madoka magica)
+**italy (hetalia)**
 
 
 # thanks 4 reading ! 
