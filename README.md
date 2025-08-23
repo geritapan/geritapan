@@ -53,29 +53,9 @@ i dont take **rejection** well, i may go quiet after being told no
 
 i suffer from **mental health issues** 
 
-im an **unsure sharing yumeshipper**, i yume with shadow and rouge from sth \(^o^)/
+im an **unsure sharing yumeshipper**, i yume with shadow and rouge from sth and poland from hetalia ^w^
 
 ![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)
-
-
-## KINS (me) !!
-
-*italic* = synpaths 
-**bold** = kinshifts
-***both*** = mix of syn and shift
-
-*spongebob squarepants*
-
-***ame-chan (nso)***
-
-*tomoko (watamote)*
-
-***konata izumi (lucky star)***
-
-*madoka kaname (madoka magica)*
-
-**italy (hetalia)**
-
 
 # thanks 4 reading ! 
 
