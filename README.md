@@ -47,8 +47,6 @@ i dont mess up ^_^
 
 i have **anxiety**, so i act odd around new people til i get to know you 
 
-i **ageregress** sometimes, ill usually put 'little' or 'agere' in my name if i am 
-
 i dont take **rejection** well, i may go quiet after being told no 
 
 i suffer from **mental health issues** 
