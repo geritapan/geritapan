@@ -38,30 +38,21 @@ homestuck , hazbin hotel / helluva boss , roblox fandoms , fnf
 
 *more info on rentry !!*
 
-![](https://whysoserious.jp/needy/resources/img/info_movie_fc88ef0b94d14e7f75cc9d0c416b582a.gif)
 ## BYI
 
 i sometimes say **RECLAIMABLE** slurs + make dark/sexual jokes with my friends , if u need me to not bring up a topic just let me know so
 i dont mess up ^_^
 
-**please dont disclude me**, it makes me feel bad
+please dont exclude me, it makes me feel bad, i dont take rejection very well
 
-i have **anxiety**, so i act odd around new people til i get to know you 
+i have social anxietu, so i act odd around new people til i get to know you 
 
-i dont take **rejection** well, i may go quiet after being told no 
+i suffer from mental health issues + im neurodivergent
 
-i suffer from **mental health issues** 
+im a selective sharing yumeshipper with shadow the hedgehog and poland from hetalia ^w^ (i typically dont harass or block people)
 
-im an **unsure sharing yumeshipper**, i yume with shadow and rouge from sth and poland from hetalia ^w^
-
-![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)![](https://media.tenor.com/B8BKXSGA-voAAAAM/omgkawaiiangel-kangel.gif)
+![](https://media1.tenor.com/m/NKbS9pknHk4AAAAC/2p-hetalia-2p-lietpol.gif)
 
 # thanks 4 reading ! 
 
-![](https://blinkies.cafe/b/display/0242-loveletter.gif)
 
-![](https://blinkies.cafe/b/display/0206-nyancat.gif)
-
-![](https://blinkies.cafe/b/display/0178-mikuwink2.gif)
-
-![](https://blinkies.cafe/b/display/0168-catgender.gif)
