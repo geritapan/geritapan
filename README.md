@@ -9,7 +9,8 @@
 ![](https://media.tenor.com/fzKPJg00gvoAAAAi/hetalia-italy.gif)
 
 
-hie im austin! i like making frens on pt so pls int with me! (C+H is always welcome even if it isnt in my name!)
+hie im austin! i like making frens on pt so pls int with me! though be wary, if im not with a group of friends im pretty shy
+(C+H is always welcome even if it isnt in my name!)
 
 (my friend list is usually always full ToT)
 
