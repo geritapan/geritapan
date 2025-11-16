@@ -22,7 +22,7 @@ note: even if the fandoms im in have a bad rep , im not a mean guy , i like maki
 
 ⛔ - busy/dni(u_) (will specify)
 
- ![](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExODU3bzA0c2U2Nmh3cWpmZGJsNzdmb2Z5eXo4YTd4Ymg0eGQzYWU1MSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/qvcNZngRzaLmM/giphy.gif)
+ ![]([https://i.pinimg.com/originals/13/67/a3/1367a3a37741923ed8df1f114befc006.gif)
  
 ## INT / FANDOMS IM IN !!*\
 **bold** = *hyperfixations*
