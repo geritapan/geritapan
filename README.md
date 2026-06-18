@@ -8,13 +8,9 @@
 
 ![](https://media1.tenor.com/m/JPlBzdrwLmgAAAAC/poland-hetalia.gif)
 
-
-hie im austin! i like making frens on pt so pls int with me! though be wary, if im not with a group of friends im pretty shy
-(C+H is always welcome even if it isnt in my name!)
+hello hai haii im austin!!!! (C+H always!!!)
 
 (my friend list is usually always full ToT)
-
-note: even if the fandoms im in have a bad rep , im not a mean guy , i like making friends n i wont bite unless u bite first ^o^
 
 🟢 - ALL INT PLLSS
 
@@ -27,14 +23,13 @@ note: even if the fandoms im in have a bad rep , im not a mean guy , i like maki
 ## INT / FANDOMS IM IN !!*\
 **bold** = *hyperfixations*
 
-nso/ngo , **batim** , **twenty one pilots** , **vocaloid** , cookie run , **resident evil** , **sonic** , **spongebob** , object shows , slime rancher , fnaf , fnf , **pusheen** , stray , taiko no tatsujin , undertale/deltarune , tyler the creator , dandys world , regretevator , **hetalia**
+**hetalia** , **sonic** , **spongebob** , **twenty one pilots** , vocaloid , resident evil , pusheen , taiko no tatsujin , undertale/deltarune , menhera-chan , suicide boy (+ a lot more!!}
 
 
 ![](https://media1.tenor.com/m/pe6OZhwutagAAAAC/lietpol-polliet.gif)
 
 
-## THIN ICE . (friends excluded)
-homestuck , hazbin hotel / helluva boss , roblox fandoms , fnf 
+## i block freely
 
 *more info on rentry !!*
 
@@ -43,13 +38,11 @@ homestuck , hazbin hotel / helluva boss , roblox fandoms , fnf
 i sometimes say **RECLAIMABLE** slurs + make dark/sexual jokes with my friends , if u need me to not bring up a topic just let me know so
 i dont mess up ^_^
 
-please dont exclude me, it makes me feel bad, i dont take rejection very well
-
-i have social anxietu, so i act odd around new people til i get to know you 
+i have social anxiety, so i act odd around new people til i get to know you 
 
 i suffer from mental health issues + im neurodivergent
 
-im a selective sharing yumeshipper with shadow the hedgehog and poland from hetalia ^w^ (i typically dont harass or block people)
+im a nonsharing yumeshipper with shadow the hedgehog and poland from hetalia (anti-harassment!! harassing ur doubles is stupid)
 
 ![](https://media1.tenor.com/m/NKbS9pknHk4AAAAC/2p-hetalia-2p-lietpol.gif)
 
